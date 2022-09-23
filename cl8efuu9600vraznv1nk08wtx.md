@@ -1,4 +1,4 @@
-## Learn About Uniswap And What Are  Flasloans 🚀🚀
+## Learn About Uniswap And What Are  Flashloans 🚀🚀
 
 # What is Uniswap 
 
